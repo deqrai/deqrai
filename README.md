@@ -2,6 +2,7 @@
 > [*Instagram*](https://www.instagram.com/deqraii/)
 > -------------
 > [*VK*](https://vk.com/deqrai)
+> -------------
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
