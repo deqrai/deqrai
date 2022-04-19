@@ -4,5 +4,5 @@
 > [*VK*](https://vk.com/deqrai)
 > -------------
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
+- 🔭 Now I am working on opening my first business 
+- 🌱 I’m currently studying in NIS CBD 
